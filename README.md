@@ -1,0 +1,1 @@
+# komot_privacy_policy
